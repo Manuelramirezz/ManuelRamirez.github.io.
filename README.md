@@ -1,2 +1,2 @@
-# ManuelRamirez.github.io.
+# Manuelramirezz.github.io
 Manuel Diario
